@@ -1,2 +1,2 @@
-www.wulong.top
+www.xwulong.top
 xwulong.top
